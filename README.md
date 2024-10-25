@@ -1,1 +1,0 @@
-# vg-ms-study-programme
